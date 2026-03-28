@@ -1,1 +1,1 @@
-# new-portfolio  profile updare
+# new-portfolio  profile updare   this one nice to work with
